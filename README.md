@@ -18,6 +18,8 @@
 
 ## 下载资源
 [点击下载APK](https://www.pgyer.com/BsvJ)
+[友书PC网页版](https://www.ystxt.com)
+[友书Wap版](https://m.ystxt.com)
 
 ## 声明
 仅用于学习用途，如有侵权请联系删除。 zchu8073@gmail.com
